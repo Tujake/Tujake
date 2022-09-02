@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tujake
-- 👀 I’m interested in  aprender a programar e  estudar psicologia  que são  minhas maiores  metas
+- 👀 I’m interested in  aprender a programar e  estudar psicologia  que são  minhas maiores  metas.
 - 🌱 I’m currently learnin programação,  e pretendo iniciar faculdade de psicologia. no momento trabalho apenas  como auxiliar administrativo.
-- 💞️ I’m looking to collaborate on  em empresas  que buscam novos profissinais  dedicados e flexíveis para novos desafios
+- 💞️ I’m looking to collaborate on  em empresas  que buscam novos profissinais  dedicados e flexíveis para novos desafios.
 - 📫 How to reach me :  @correatxz
 
 <!---
